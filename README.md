@@ -1,2 +1,0 @@
-# quanao
-bán quần áo
